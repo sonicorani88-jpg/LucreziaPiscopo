@@ -2,7 +2,7 @@
 
 La mia esperienza con i quiz agente immobiliare
 
-# Come ho cambiato totalmente vita a 39 anni preparandomi all’esame e ai quiz agente immobiliare
+# Come ho cambiato totalmente vita a 39 anni preparandomi all’esame e ai [quiz agente immobiliare](https://www.easy-quizzz.com/it/quiz-abilitazione/esame-agente-immobiliare/quiz-agente-immobiliare/quiz.html)
 
 Mi chiamo Lucrezia, ho 39 anni e per 14 anni ho lavorato come impiegata amministrativa. Uno di quei lavori che da fuori sembrano l’ideale, ma che da dentro spengono l’entusiasmo, nonostante il contratto stabile e lo stipendio sicuro a fine mese.
 
@@ -60,7 +60,7 @@ Avevo bisogno di simulazioni reali con timer, non solo di ripasso teorico.
 
 ## Perché ho scelto Easy Quizzz
 
-Cercando online ho trovato Easy Quizzz.
+Cercando online ho trovato [Easy Quizzz](https://easyquizzz.com)
 
 Mi ha colpita la possibilità di fare esercitazioni per materia. Se avevo appena ripassato diritto civile, potevo concentrarmi solo su quello.
 
